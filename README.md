@@ -1,6 +1,6 @@
 ### Hi there 👋  plakkkkkkkkkkkkkkkkkk   
 
-**dy** is a ✨ _special_ ✨ repository because its `abp.exe` (this g) appears on your eyes.
+**dy** is a ✨ _special_ ✨ because its `abp.exe` (this g) appears on your eyes.
 
 Here are some my something:
 
